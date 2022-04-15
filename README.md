@@ -12,5 +12,3 @@ _My Career Goals are to Develop my Skills and Knowledge with more advances learn
 ## Why choose Fintech as a career path
 _Programming and Coding has been a dream for me to attain and with the fintech industry i can attain my carrer goals and also make a good fortune at the same time._ 
 
-### Read me Table of Contents
-
